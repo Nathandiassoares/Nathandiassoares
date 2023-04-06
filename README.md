@@ -1,4 +1,4 @@
-## Olá eu sou Nathan dias !!!😄😄
+## Nathan dias
 
 <div align="center">
   <a href="https://github.com/Nathandiassoares" target="_blank">
